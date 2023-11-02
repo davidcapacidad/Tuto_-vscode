@@ -1,0 +1,2 @@
+Die von der Hamas gegrabenen Tunnel stellen die israelische Armee im Fall einer größeren Bodeninvasion 
+im Gazastreifen vor enorme Probleme. Sie machen die ohnehin schwierige urbane Kriegsführung noch komplizierter  
